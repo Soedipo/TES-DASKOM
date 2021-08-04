@@ -1,1 +1,0 @@
-Bugnya banyak, gatau lagi harus apa jadi yaudahlah
